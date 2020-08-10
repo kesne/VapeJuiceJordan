@@ -20,6 +20,7 @@ Jordan Gensler (VapeJuiceJordan) has demonstrated the following flaws:
 - does not have a v-neck undershirt
 - slouches
 - doesn't fucking lock his motherfucking apartment (I do it so tru can visit me but she never does :'( )
+- doesn't even vape
 
 ## Addressing Flaws
 
