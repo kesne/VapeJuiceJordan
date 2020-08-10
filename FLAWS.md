@@ -29,6 +29,9 @@ Jordan Gensler (VapeJuiceJordan) has demonstrated the following flaws:
 - doesn't know assembly
 - doxxes himself constantly on stream
 - is actually bald
+- smells
+- pees the bed
+- umm
 
 ## Addressing Flaws
 
