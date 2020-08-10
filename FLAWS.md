@@ -22,6 +22,9 @@ Jordan Gensler (VapeJuiceJordan) has demonstrated the following flaws:
 - doesn't fucking lock his motherfucking apartment (I do it so tru can visit me but she never does :'( )
 - doesn't know backend
 - scuffed streamer
+- smells
+- pees the bed
+- umm
 
 ## Addressing Flaws
 
