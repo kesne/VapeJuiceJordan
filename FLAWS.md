@@ -22,6 +22,13 @@ Jordan Gensler (VapeJuiceJordan) has demonstrated the following flaws:
 - doesn't fucking lock his motherfucking apartment (I do it so tru can visit me but she never does :'( )
 - doesn't know backend
 - scuffed streamer
+- hasn't created an iron man suit yet
+- lightweight
+- had a wardrobe that was 100% Gap
+- not 100 in APEX legends
+- doesn't know assembly
+- doxxes himself constantly on stream
+- is actually bald
 - smells
 - pees the bed
 - umm
